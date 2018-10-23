@@ -2,7 +2,7 @@
 # ALEXANDER MENA
 ---
 10433 S Carnation Dr, Sandy, UT 84094 :diamonds: (208)346-1246 :diamonds: alex.mena2113@gmail.com
-
+  
 ### EDUCATION
 ---
 **Utah Valley University - Orem, UT**
