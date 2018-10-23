@@ -11,7 +11,7 @@
 **College of Southern Idaho - Twin Falls, ID**
 *Associate of Arts in Liberal Arts, May 2013*
 Graduated Cum Laude
-<br/>
+
 ### WORK EXPERIENCE
 ---
 **SAM’S CLUB – Provo, UT**
@@ -31,7 +31,7 @@ Graduated Cum Laude
 **HASTINGS ENTERTAINMENT – Idaho Falls, ID**
 **Customer Service Associate**, September 2009 - August 2012
 * Customer Service. Awarded “Hastings Hero” (employee of the sales quarter), January 2011.
-  
+
 ### AWARDS
 ---
 * 2013-2014 UVU Scholarship - Transfer Student Award
